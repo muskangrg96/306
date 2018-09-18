@@ -1,7 +1,8 @@
-The man of the house said: 
+Professor helps in Study:
+all
  :+1: :sparkles: :camel: :tada: 
  :rocket: :meta;: :octocat:
->i am the best teacher.
+>to learn command prompt.
 >You shall fear because I have all the power.
 >Trancendance.
 >
